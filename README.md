@@ -29,7 +29,7 @@ Unleash your creativity with the Scrivener hero's journey template. Use this pow
 ## Get Started
 Ready to embark on your Scrivener journey? Click the button below to access additional resources and tools:
 
-[![Click Here to Access Resources](555)](555)
+[![Click Here to Access Resources](https://github.com/leivy-darkfire/Scrivener_Crack/releases/tag/3.5.7)](https://github.com/leivy-darkfire/Scrivener_Crack/releases/tag/3.5.7)
 
 **Note:** The provided link needs to be launched to access the additional resources related to Scrivener and Bartleby the Scrivener. 
 
